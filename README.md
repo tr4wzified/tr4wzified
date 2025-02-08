@@ -7,4 +7,4 @@ Find me on
 - [Steam](https://steamcommunity.com/id/trawzified/)
 
 If you like my work (and you have money to spare!), donations are appreciated.
-- Ko-Fi: https://ko-fi.com/trawzified
+- [Ko-Fi](https://ko-fi.com/trawzified)
